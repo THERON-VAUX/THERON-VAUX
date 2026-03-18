@@ -1,4 +1,4 @@
-# THERON_VAUX
+# THERON-VAUX
 你好，我叫瑟隆•沃克斯，你可以叫我蒜蓉或者LLTV
 
 ---
